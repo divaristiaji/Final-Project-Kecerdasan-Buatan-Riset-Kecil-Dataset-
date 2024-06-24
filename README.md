@@ -1,1 +1,0 @@
-# Final-Project-Kecerdasan-Buatan-Riset-Kecil-Dataset-
